@@ -1,2 +1,0 @@
-# giar
-Giar Mediação Online
